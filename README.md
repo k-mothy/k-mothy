@@ -1,4 +1,4 @@
-### Welcome :]]] :blue_heart:
+### Welcome :]
 
 = Programmer of FTC team 16377 Spicy Ketchup !!1!11!! =
 <br/> — ｡° -
